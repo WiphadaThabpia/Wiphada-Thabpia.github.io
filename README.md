@@ -1,1 +1,0 @@
-# Wiphada-Thabpia.github.io
